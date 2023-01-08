@@ -1,0 +1,6 @@
+- Establish a more Routine
+- Let him feel like he is in control
+- Double binds
+- Take action not too many words
+- Help him explain WHY he wants something
+- 
